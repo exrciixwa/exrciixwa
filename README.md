@@ -4,9 +4,9 @@
  ⠀⠀ ⠀ ⠀ ⠀ ★꒷꒦ ˎ
 -
 ️⃣
-•̩̩͙ **˚.⊹ 𖦆 𝓦𝓘𝓕𝓘𝓔𝓢 ๋ ⑅˚.**----*•̩̩͙
+•̩̩͙ **˚.⊹ 𖦆 𝓦𝓘𝓕𝓘𝓔𝓢 ๋ ⑅˚.**--*•̩̩͙
 
-![image name](https://github.com/exrciixwa/exrciixwa/blob/60a4d19c09da71ef3aa7da3e95a9f6ff289b41f7/2264bbfa120d2dff3f49e54589b70bf7%20(1).jpg
+![image name](https://github.com/exrciixwa/exrciixwa/blob/60a4d19c09da71ef3aa7da3e95a9f6ff289b41f7/2264bbfa120d2dff3f49e54589b70bf7%20(1).jpg)
 dont copyme unless u r my closefriend
 
 ￴￴￴￴￴￴￴￴￴￴￴︎￴￴￴￴￴￴￴￴￴￴￴︎￴￴￴￴￴￴￴￴￴￴￴︎      _ ຼ ꒰꒰ ͜͝ ⠀𓏴⠀ ⠀ ⠀ ⠀🧁 ̫ ͜⏔ ⠀ ⠀𓏴⠀ ⠀ ⠀ ⠀° .
